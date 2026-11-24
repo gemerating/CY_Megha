@@ -2,7 +2,7 @@
 
 Day 2. One paragraph each, each tied to a real condition.
 
-## 1. Flying Fruit
+## 1. Cabble (flying fruit)
 From the future, positioned in Bengaluru. The fruit is 3D printed and the recipe and print files for regeneration act as a seed. They can either be put on a website with open access or as an SD card inside the fruit.
 
 ## 2. Hephy (balloon animal)
