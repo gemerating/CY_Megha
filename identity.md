@@ -60,3 +60,4 @@ These examples use different processes: the 2014 report describes flavored spher
 ## F · The distance
 
 **What is shared.** Cabble is shaped by written rules and algorithms, while people are shaped by taught values and virtues. Under both kinds of instruction, behavior becomes a performance. Cabble and its creator shape one another through their encounters, even when only one side of that exchange is visible at a time.
+**Where we differ.** Cabble is bound to stillness until something calls it into performance. It observes change from within its fixed body, but does not respond to every disturbance. I can leave the scene; Cabble waits in it. Is its stillness rest, restlessness, or part of the performance?
