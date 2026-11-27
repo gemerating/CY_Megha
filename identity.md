@@ -18,3 +18,8 @@ Day 3. Fill in from the identity worksheet.
 These examples use different processes: the 2014 report describes flavored spheres, while the Inhabitat excerpt describes a cellulose shell and added liquid. They are examples of designed fruit, not evidence that the processes are the same.
 
 **Cabble's question.** If fruit can be designed for a chosen taste, form, nutrition, or longer storage, what is changed or lost in making it ideal?
+## B · The displacement
+
+**Where it stands.** In a future Bengaluru, Cabble speaks as a designed fruit made from a combination of materials and matter.
+
+**What it can see from there.** The ideal is something assembled to provide, serve, succeed, and be wanted. Cabble is automated, yet performs for the people who consume it.
