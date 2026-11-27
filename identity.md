@@ -7,7 +7,7 @@ Day 3. Fill in from the identity worksheet.
 
 **The condition.** Food can be designed into an ideal form, nutrition, taste, or experience. Cabble asks what that process changes or takes away from the object and the maker.
 
-**Who lives inside it?** N/A. Cabble is an imagined fruit, not a voice representing a named community.
+**Who lives inside it?** N/A. Cabble is an imagined fruit.
 
 **Evidence gathered so far.**
 
