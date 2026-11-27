@@ -10,3 +10,7 @@ From the present, positioned in Delhi, is the last art piece left for sale at th
 
 ## 3. Tzins (plastiglomerate carved sculpture/assemblage)
 From the future, it is telling of our Anthropocene and the shape future fossils could take.
+
+
+## The Choice 
+Exploring all 3 for now. Working from the top. 
